@@ -1,1 +1,1 @@
-Some files too large to upload :( especially psd files
+Some files too large to upload, PSD files not uploaded
